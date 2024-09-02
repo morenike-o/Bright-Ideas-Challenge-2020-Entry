@@ -1,0 +1,1 @@
+# Bright-Ideas-Challenge-2020-Entry
